@@ -1,0 +1,1 @@
+thay doi tien trinh cai dat OS
